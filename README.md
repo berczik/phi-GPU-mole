@@ -80,6 +80,6 @@ MAO/NASU, 27 Akademika Zabolotnoho St., 03143 Kyiv, Ukraine
 E-mail: berczik@mao.kiev.ua
 Office: +38 (044) 526-47-71
 Mobil:  +38 (099) 503-72-62
-Skype1:  berczik-office
+Skype:  berczik-office
 *****************************************
 
