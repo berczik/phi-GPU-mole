@@ -71,7 +71,7 @@ code please send me the e-mail or contact me in any other way.
 
 All the best, Peter Berczik.
 
-=================================================
+*****************************************
 Dr.Sci. Peter Berczik
 
 Main Astronomical Observatory
@@ -84,4 +84,4 @@ Office: +38 (044) 526-47-71
 Mobil:  +38 (099) 503-72-62
 Skype1:  berczik-office
 Skype2:  berczik (on phone)
-=================================================
+*****************************************
